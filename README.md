@@ -1,3 +1,1 @@
 # deneme
-jvdka
-hdgkvj
