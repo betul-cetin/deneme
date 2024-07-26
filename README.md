@@ -6,4 +6,4 @@ jsdu
 jsh
 lkjhgf
 çıkı çıki
-miki mouse
+miki 
