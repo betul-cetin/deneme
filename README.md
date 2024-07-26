@@ -4,4 +4,3 @@ jdxlıopi
 merhaba
 jsdu
 jsh
-slkjhgd
