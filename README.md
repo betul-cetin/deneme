@@ -5,3 +5,4 @@ merhaba
 jsdu
 jsh
 lkjhgf
+çıkı çıki
