@@ -11,4 +11,3 @@ jkvfjdk
 nejhlsdl
 vdsvd
 tedsa
-pıjj
